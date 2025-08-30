@@ -32,6 +32,7 @@
   
 *22yrs old:*
 -   wanted to study remote sensing and gis more, took a year taking classes, applied for masters program
+-   taught myself python and more programming
   
 *17-21yrs old:*
 -   went to college to study ecology
