@@ -27,7 +27,7 @@
 -   taught ecology and intro to stats classes to undergrads
 -   presented at various local and national conferences
 -   published papers in local peer reviewed journals
--   top TA of dept, won dept award of most outstanding graduate student
+-   top teaching assistant of dept, won dept award of most outstanding graduate student
 -   lyme disease symptoms became apparent
   
 *22yrs old:*
